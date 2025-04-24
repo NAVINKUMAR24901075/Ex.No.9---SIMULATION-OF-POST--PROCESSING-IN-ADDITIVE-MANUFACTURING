@@ -50,7 +50,7 @@
 ![Screenshot 2025-04-24 160450](https://github.com/user-attachments/assets/7e42158f-e11e-4113-a502-5653ecde7255)
 ![Screenshot 2025-04-24 160526](https://github.com/user-attachments/assets/33e04de2-eff8-43cb-ab61-d7660ea1495f)
 
-### Name: S,NAVINKUMAR
+### Name: S.NAVINKUMAR
 ### Register Number: 212224110041
 
 ## Result: 
